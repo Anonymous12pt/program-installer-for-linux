@@ -13,3 +13,5 @@ Enjoy:)
 
 
 Just for lazy people lol.
+
+//note: just saw this on may2, 2021 lockdown sucks....just a newbie thing it's encrypted anyways, however it works!
